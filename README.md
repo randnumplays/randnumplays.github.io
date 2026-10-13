@@ -7,3 +7,9 @@ October 6, 2026
 # randnumplays.github.io/comic.html
 I just made my comic and it's now on my github it's the same repository as the index.html.
 Anyways, i'm going to change it soon. Bye!
+
+October 13, 2026
+I have made a Scratch project for my GITHUB. 
+But I can't put it on yet, so i'm gonna do that this weekend. Bye!
+Scratch link:
+#https://scratch.mit.edu/projects/1390873349
