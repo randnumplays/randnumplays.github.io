@@ -12,4 +12,4 @@ October 13, 2026
 I have made a Scratch project for my GITHUB. 
 But I can't put it on yet, so i'm gonna do that this weekend. Bye!
 Scratch link:
-#https://scratch.mit.edu/projects/1390873349
+# https://scratch.mit.edu/projects/1390873349
