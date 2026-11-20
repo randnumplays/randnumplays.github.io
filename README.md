@@ -13,4 +13,7 @@ October 13, 2026
 I have made a Scratch project for my GITHUB. 
 But I can't put it on yet, so i'm gonna do that this weekend. Bye!
 
-October 18, 2026
+November 20, 2026
+It's been so long ever since i've done anything on my Github.
+Anyways, i've been doing some stuff ever since.
+I'm not gonna say it here, so... Bye, I guess!
